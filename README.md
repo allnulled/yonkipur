@@ -301,3 +301,62 @@ Si puedes resolver esto, y proporcionarte droga, puedes alejar demasiados demoni
 
 De este modo, se satisface el imperativo categórico universal kantiano: no hagas al otro lo que no quieras que te hagan.
 
+## Dilema del yonkipur
+
+Yonkipur se enfrenta a un dilema de forma repetitiva: adquirir o no adquirir la sustancia encarecida.
+
+Y Yonkipur es muy feliz cuando sucumbe a la tentación de ese "gasto inflado e innecesario". Pero sabe que le comportará perjuicios luego. Y con cannabis es un precio, con mdma otro, y con cocaína otro. Y no sé cuál está más inflado. En una escala menor tienes tabaco. Y hay más. Pero la escala es de un incremento fuerte. Quiero decir: cada cosa puede derivar en un gasto mucho más elevado.
+
+## Pauta de deshabituación
+
+La felicidad que se produce al consumir yonkicidad, en el proceso de deshabituación, conviene no ser recordada, evitar de proyectarse en la imaginación. En el de abstinencia, no importa tanto, porque igual puede resultar en perjuicio, pero igual en un motivador para lo que luego vendrá. Pero en la deshabituación, y sabiendo que esa sensación no debería volver a aparecer próximamente, es difícil convertirla en algo positivo.
+
+Por tanto:
+
+> 0. Conviene no recordar la felicidad que se produce al consumir.
+
+
+El registro volitivo tiene mucha importancia en el sufrimiento en el proceso de deshabituación: **a más lo deseas, más sufres**.
+
+> 1. Conviene no desear la sustancia.
+
+El registro motriz es el que tiene un movimiento donde apaga al registro volitivo.
+
+Ese movimiento, de autoabandono, de anhedonia, de apatía voluntaria, donde apagas los deseos, puede ser crucial en el proceso de deshabituación. Con este movimiento se puede evitar que el síndrome de abstinencia se convierta en enojo y cosas así. Quedándose quieto, derrotado por la existencia. Es un movimiento útil.
+
+Los deseos pueden derivar fácilmente en frustración, y la frustración fácilmente en estrés.
+
+> 2. Conviene no desear cosas demasiado.
+
+Esto puede evitar el efecto espejo que se produce al desviar el foco de la sustancia, pero portando los efectos del síndrome de abstinencia de la sustancia igualmente. Se proyectan los efectos de la abstinencia en otra cosa. Y en esas, se conduce a las mismas reacciones, aunque aplicadas a otra cosa.
+
+El registro de lo sensitivo también puede jugar en contra. A través de voces, por ejemplo. Pero en principio no debería.
+
+El registro de lo simbólico también puede jugar en contra. A través de interpretaciones de la realidad. Este puerto es un chorreo cuando intentas huir, hay flooding.
+
+> 3. Conviene no hacer actividad muy mental, y de hacerla, que sea enfocada en algo específico.
+
+Esto sucede porque es fácil que haya interferencias simbólicas que busquen despertar malas entradas en el sensitivo. Muy fácil. Y muy agresivas. Y duras. Y en clave de sospecha: guardan mucho más, tienen un arsenal importante de exploits de lo simbólico esperando, y los tirarán.
+
+Hay que prepararse. Está ahí la guerra, hay que profundizar en este punto.
+
+> 4. El registro simbólico se vuelve un demonio de entrada de datos tóxica fácilmente. Conviene mantenerlo en intensidad atenuada.
+
+Las malinterpretaciones, los malos humores, y las malas ideas están flotando en el periodo de deshabituación. Conviene estar atento a no dejarse llevar, y sí dejarlos pasar. Apoyarse en la atenuación del volitivo también.
+
+> 5. Por tanto, abandonarse y quitar importancia a las cosas, para el volitivo y para el simbólico.
+
+El porqué es: para evitar el conflicto.
+
+> 6. Todo cambia. Ahora quizá no estés bien: eso significa que estarás bien más adelante.
+
+Esta es la ley de la masoquidad. Es así: algo es bueno, porque se compara con algo menos bueno. El opcode CMP del código ensamblador. Es matemática de bajo nivel.
+
+> En resumen, no desear nada demasiado, abandonarse y quitar importancia a las cosas hasta que cambien.
+
+Así, evitas el conflicto, la confrontación con la realidad, que acabaría en autohumillación (ser el payaso de una socidad aparentemente sometida) y en nada productivo (porque habrías sucumbido a las provocaciones que se vienen sucediendo, en lugar de explorar todas las posibilidades).
+
+Es la vía búdica. No quiero enfrentarme al sistema: me apago. A veces funciona, a veces no.
+
+Y uno piensa que no hay otra. Lo del trabajo, no sale bien. Lo de la ayuda, no sale bien. Lo de la terapia, no sale bien. Nada sale bien. Cálmese. Cálmese, porque no va a salir bien. Cálmese, porque usted no tiene el control de este barco.
+
