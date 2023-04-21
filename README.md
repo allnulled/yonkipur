@@ -4,7 +4,6 @@ El YonkiPur es mi intento de racionalización de la yonkicidad.
 
 ## Resumen visual
 
-
 | Yin | Yang |
 |---|---|
 | Realidad | Yo |
@@ -120,6 +119,8 @@ El YonkiPur es mi intento de racionalización de la yonkicidad.
     <tr>
     </tr>
 </table>
+
+
 
 
 ## Religión
@@ -261,4 +262,42 @@ En este registro se congrega toda la información de todo lo demás, y se intent
 Este registro es el de la imaginación: es el registro donde estoy proyectando estas palabras. Se ayuda de todos los demás.
 
 La diferencia entre el registro proyectado y el registro simbólico, que no es estricta, radicaría en que lo simbólico está atado más a lo que sería la memoria pasada, el recuerdo. Mientras tanto, el registro proyectado es un espacio atado al tiempo hipotético, donde se puede proyectar igual pasado, presente o futuro, o condicional o imposible incluso. Es un espacio de memoria en blanco donde poner a funcionar todo lo demás.
+
+## El juego del yonkipur
+
+El yonkipur representa al ser habituado. El hábito, dicen, construye la personalidad.
+
+El juego del yonkipur de sustancias furtivas consiste en (1) conseguir la sustancia por vías no regladas y con precios desmedidos, pero también en (2) enfrentarse a los periodos de abstinencia, o (3) al proceso de deshabituación.
+
+Los 3 son pasos que serían incómodos, y si fuera una cobaya que le da a una palanca y cae la droga, probablemente podría olvidarme del mundo. El yonkipur no busca el conflicto: busca la sustancia. Es el mundo y la ley la que envuelve en conflicto este deseo. Con la Cannabis sativa se ve fácil por haber semillas específicamente diseñadas para generar la planta mundialmente más portadora de THC. Pero la metanfetamina puede ser elaborada con un proceso relativamente sencillo (hay que dominarlo, y pocos lo conocen y lo quieren poner en práctica) y con materiales relativamente sencillos y baratos, además de legales. Y es una sustancia que genera mucha felicidad. Por tanto, es mucho más rápida de obtener que 2 meses de cultivo con condiciones específicas. A un paso de un mundo feliz, provisto de piedras de felicidad. Y la censuran, y la criminalizan, y la persiguen, en favor de que trabajes. De que trabajes para una granja de producción a ciegas.
+
+Yonkipur se mantiene más próximo a lo inmediato. Pero aunque la sensación producida por la droga es inmediata, la droga sí que la median. Y con el tramposo dinero. Yonkipur sabe que un cambio en su estrecho vínculo con la sustancia puede hacer tambalear su vínculo con la realidad entera. Y teme. Pero no es capaz de extraer un uso terapéutico, hace un uso abusivo.
+
+Cree, yonkipur, que es posible, que no sería necesario realmente dejar la sustancia: que el mundo puede llegar a entender y proteger esta relación. Pero no se demuestra así: y de hacerlo, antes haría negocio de ello que darlo a modo terapéutico y sin más. Porque yo plantaría toda la montaña. Pero la realidad, por su parte, juega a encarecerla, complicarla, y demás.
+
+Yonkipur sabe que la sustancia genera magnetismo. Y yonkipur observa que la realidad utiliza ese magnetismo para engañar a yonkipur, menospreciarlo y confundirlo.
+
+Sin embargo, yonkipur también sabe que nunca lo sabrá todo. Y que conformarse y relajarse es una opción sensata también. Y más en un mundo tan celoso del conocimiento (por ejemplo: si sabes hacer metanfetaminas y quieres, aquí estoy).
+
+Pero yonkipur ya ha probado de avanzar en lo laboral, y se ha dado suficientes veces de morros. De esto, de aquello, aquí, allá. Y siempre hay problemas. A veces de fuera, a veces de dentro.
+
+Por eso yonkipur se limpia la conciencia dando software gratis. Pero yonkipur tiene muchos problemas para atender demandas abiertas, y tiene cosas que hacer, y se atabala. Y no es capaz. Y súmale medios escasos y siempre en escasez mental por encarecimiento de la sustancia y magnetismo...
+
+Pero yonkipur quiere tener la opción de abandonar el consumo de la sustancia. Y necesita de herramientas para levantarse, y darle un sentido. Sin empleo, sin progresión, sin promesas. Y no sabe si puede. Pero debe intentarlo.
+
+Abandonar el consumo de mariajuana. Y optar por una vida donde 200 proyectos conforman mi fortaleza de perdedor. Y más de una docena de fracasos laborales. Y más de varias decenas de miles de currículums enviados para optar a un trabajo negado. Y leyes, y situación económica, y estado de la educación, y leyes de empleo, y política internacional, y pantomima mediática...
+
+Yonkipur sabe que no es fácil. Y sabe que no acaba ahí la cosa: voces inyectando ideas, ideas que son mal recibidas, sentirse mal y realmente atrapado en la existencia y enojado con todo, desconcierto, apatía, desgana, negativismo, se acentúa la aversión social, el descrédito del entorno, la enemistad con la realidad, conductas límite, ideas feas, malestar, desesperación... todo eso para luego sucumbir a la menor exposición olfativa.
+
+Yonkipur sabe también que luego, pasados unos días quizá a veces, el querer estar vuelve, y la persona se reencuentra, al menos un poco, consigo misma, sin la sustancia.
+
+Yonkipur huye de este estado de estar, porque las ideas se vuelven más presionantes, y los objetos que se dibujaban como amenaza lejana (empresa, jefe, dinero, trabajo a ciegas, aceptación de la ley y del sistema legislativo) pasan a ser una realidad con la que hay que mediar.
+
+Yonkipur huye de este estado consciente de estar de forma consciente, porque son demonios, y atacan al que no los aleja con la droga. Pero al alejarlos, vienen otros demonios: escasez de recursos económicos.
+
+Si puedes resolver esto, y proporcionarte droga, puedes alejar demasiados demonios. En cambio, si no puedes, estás como medio-expuesto. Y si buscas paliarlos por la vía convencional, los multiplicas. No todo es malo, eso sí, si te compensa creo que es enriquecedor. Si no te compensa, puede llegar a ser tóxico. Yonkipur lo sabe. Y yonkipur sabe que prefiere la técnica de la timidez de los árboles, donde los árboles no se tocan.
+
+![](./timidez.jpg)
+
+De este modo, se satisface el imperativo categórico universal kantiano: no hagas al otro lo que no quieras que te hagan.
 
