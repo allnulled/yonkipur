@@ -360,3 +360,12 @@ Es la vía búdica. No quiero enfrentarme al sistema: me apago. A veces funciona
 
 Y uno piensa que no hay otra. Lo del trabajo, no sale bien. Lo de la ayuda, no sale bien. Lo de la terapia, no sale bien. Nada sale bien. Cálmese. Cálmese, porque no va a salir bien. Cálmese, porque usted no tiene el control de este barco.
 
+## Sobre la razón de ser de la función
+
+Los seres, son instancias. Las instancias, son réplicas de clases abstractas. La replicación es una función. Todo está en Castelog, en JavaScript, en el área de la lógica la llaman lógica de orden X. No importa, porque con JavaScript ya entiendes eso.
+
+Entonces, los seres son el producto de la llamada a una función. La función `vida` si quieres. Y cada ser, la ha llamado con unos parámetros. Por ejemplo: `vida(humana)`. Y si quieres, más detalles.
+
+Y a veces nos preguntamos la razón de vivir. La razón de la función `vida`, o la de *mi función* `vida` específica. Las funciones se escriben con una finalidad. ¿Cuál? No importa. Puede tener varias incluso.
+
+El objetivo es un ancla en la existencia. Mientras haya objetivos, la función tiene razón de ser. Mientras la rueda tenga por qué girar, girará. Y cuando no, y pare, puede deleitarse con el empírico, relajar el simbólico y el volitivo, y apreciar el paisaje, porque nada nuevo se crea ni se destruye, todo esto, también las ontologías abstractas, pertenece al sistema huésped.
