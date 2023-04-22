@@ -369,3 +369,9 @@ Entonces, los seres son el producto de la llamada a una función. La función `v
 Y a veces nos preguntamos la razón de vivir. La razón de la función `vida`, o la de *mi función* `vida` específica. Las funciones se escriben con una finalidad. ¿Cuál? No importa. Puede tener varias incluso.
 
 El objetivo es un ancla en la existencia. Mientras haya objetivos, la función tiene razón de ser. Mientras la rueda tenga por qué girar, girará. Y cuando no, y pare, puede deleitarse con el empírico, relajar el simbólico y el volitivo, y apreciar el paisaje, porque nada nuevo se crea ni se destruye, todo esto, también las ontologías abstractas, pertenece al sistema huésped.
+
+----
+
+Quiero decir, no hay muchas combinaciones de palabras naturales que puedan reflejar la lógica de la programación. Pero ya sé por NaturalScript que a Microsoft no le importa mucho en sus planes de dominación mundial. Y que no tenga para porros tampoco. Soy especial. :) Pero no sirvo para todo.
+
+¿Qué quiero decir? Que la sociedad es un invento también. De alguna forma, es lo que es.
