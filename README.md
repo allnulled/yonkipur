@@ -388,4 +388,11 @@ Entonces, tienes que soportar la carga de todo esto. Y es muy complicado. Te obl
 
 No es tan bueno lo que doy, lo sé. No sé, para mí está el crédito de una sociedad de robots en esto. Y si sigo, es porque no os creo, porque me he hecho mi propia cosmovisión, e intento tomármelo como un juego entre yo y una entidad superior. Si no, me vería demasiado acorralado. Y tomárselo así te aleja, te aliena mucho de la realidad y su funcionamiento.
 
+Creo que es la forma en que la realidad te dice que tuyo el control no es. Que esto no es tuyo. Y aquí hay 2 formas de tomárselo:
 
+ - Me relajo, y acepto que lo mejor es que no me importe demasiado.
+ - Me tenso, y pienso que siempre he estado en sus manos, que siempre tiene la sartén por el mango, y que apreta a voluntad.
+
+Y la 2 no es buena. Y la 1 es poco esperanzadora. Y el mundo está con sus eslóganes de autosuperación, y no. Hay cosas que no. Y todos: pues trabaja, pues trabaja. Y no es tan fácil. La 1 es una actitud pasiva.
+
+Y pienso: con la droga, al menos me acepto limitado. Sin la droga, podría estar corriendo toda la vida, persiguiendo objetivos que no me satisfarían tanto como prender un cigarro de mariajuana. Ahí es donde comprendes, que por mucho que programes... eso no lo conseguirás.
