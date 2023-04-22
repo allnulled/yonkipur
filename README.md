@@ -375,3 +375,7 @@ El objetivo es un ancla en la existencia. Mientras haya objetivos, la función t
 Quiero decir, no hay muchas combinaciones de palabras naturales que puedan reflejar la lógica de la programación. Pero ya sé por NaturalScript que a Microsoft no le importa mucho en sus planes de dominación mundial. Y que no tenga para porros tampoco. Soy especial. :) Pero no sirvo para todo.
 
 ¿Qué quiero decir? Que la sociedad es un invento también. De alguna forma, es lo que es.
+
+Es decir: hay razones para zambullirse en la droga. Pero ojo: la droga es suya también. Por tanto, razones para alejarse. Pero todo es suyo, la comida, los techos, todo. ¿Dejaríamos de comer? Ahí es donde te hace pasar por el aro.
+
+Sé que es un dilema muy fuerte. Porque es en plan: me quedo porque no os creo. Si os creyera, pensaría que estáis todos locos por no darme droga.
