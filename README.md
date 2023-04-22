@@ -379,3 +379,13 @@ Quiero decir, no hay muchas combinaciones de palabras naturales que puedan refle
 Es decir: hay razones para zambullirse en la droga. Pero ojo: la droga es suya también. Por tanto, razones para alejarse. Pero todo es suyo, la comida, los techos, todo. ¿Dejaríamos de comer? Ahí es donde te hace pasar por el aro.
 
 Sé que es un dilema muy fuerte. Porque es en plan: me quedo porque no os creo. Si os creyera, pensaría que estáis todos locos por no darme droga.
+
+Pero decir eso, te lo censuran. Y seguiría: *con todo lo que os doy de gratis, me vas a quitar la droga, anda trae.*
+
+Y eso suena súpaduba. Y desacreditado.
+
+Entonces, tienes que soportar la carga de todo esto. Y es muy complicado. Te obliga a tomar el control de la máquina. Con los porros vas en medio-automático. Es como una forma de anestesia. Sin porros, eres más consciente, más capaz. Pero claro, más quieres normalmente.
+
+No es tan bueno lo que doy, lo sé. No sé, para mí está el crédito de una sociedad de robots en esto. Y si sigo, es porque no os creo, porque me he hecho mi propia cosmovisión, e intento tomármelo como un juego entre yo y una entidad superior. Si no, me vería demasiado acorralado. Y tomárselo así te aleja, te aliena mucho de la realidad y su funcionamiento.
+
+
